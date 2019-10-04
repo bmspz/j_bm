@@ -1,1 +1,1 @@
-# j_bm
+# johannes og bm blir gode i github
